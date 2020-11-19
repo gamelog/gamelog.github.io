@@ -1,1 +1,0 @@
-# gamelog.github.io
